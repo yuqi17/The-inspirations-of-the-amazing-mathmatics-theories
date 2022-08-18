@@ -1,1 +1,1 @@
-# the-inspirations-of-the-amazing-mathmatics-theories
+# 记录一些有趣,经典,实用的数学理论的创造灵感和思路
