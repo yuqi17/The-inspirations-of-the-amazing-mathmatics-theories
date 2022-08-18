@@ -1,0 +1,1 @@
+# the-inspirations-of-the-amazing-mathmatics-theories
